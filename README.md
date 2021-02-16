@@ -1,0 +1,1 @@
+kreando nowe 1
